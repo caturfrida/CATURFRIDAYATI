@@ -1,2 +1,2 @@
-# CATURFRIDAYATI
+                                                                              # CATURFRIDAYATI
 TUGAS EMBEDED SISTEM
